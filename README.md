@@ -9,17 +9,17 @@ $\text{\color{pink}{ ♦ My pronouns are she/they! ♦ }}$
 </p> 
 
 <p align="center">
+$\text{\color{pink}{ ✿ I'm 23, keep that in mind. ✿ }}$
+  
+</p> 
+
+<p align="center">
 $\text{\color{pink}{ ☆ Please refrain from sexual topics, it makes me uncomfortable if you're not 18+! ☆ }}$
   
 </p> 
 
 <p align="center">
 $\text{\color{pink}{ ☆ Also, if you're not 18+, please don't ask for me to send you a friend request! ☆ }}$
-  
-</p> 
-
-<p align="center">
-$\text{\color{pink}{ ✿ I'm 23, keep that in mind. ✿ }}$
   
 </p> 
 
