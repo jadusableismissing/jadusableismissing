@@ -13,7 +13,7 @@ $\text{\color{pink}{ ♦ My pronouns are she/they! ♦ }}$
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ✿ I'm 23, keep that in mind. ✿ }}$
+$\text{\color{pink}{ ✿ My age is 18+, keep that in mind. ✿ }}$
   
 </p> 
 
