@@ -34,7 +34,7 @@ $\text{\color{pink}{ ♡ No one is in my DNI, I don't judge based on interests! 
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting by me without my permission because I will hide you. ★ }}$
+$\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting by me without my permission, I will hide you. ★ }}$
   
 </p> 
 
