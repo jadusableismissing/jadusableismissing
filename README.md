@@ -34,16 +34,11 @@ $\text{\color{pink}{ ♡ No one is in my DNI, I don't judge based on interests! 
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, so please refrain from booping constantly or sitting by me without my permission because I will hide you. ★ }}$
+$\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting by me without my permission because I will hide you. ★ }}$
   
 </p> 
 
 <p align="center">
 $\text{\color{pink}{ ♢ I hang out in safe server by the heart pool daily because I love to play with my sibling! ♢ }}$
-  
-</p> 
-
-<p align="center">
-$\text{\color{pink}{ ♥ My main interests are: South Park, Dragon Ball Z, Pokemon, Creepypasta, Death Note, Skyrim, JoJo's Bizarre Adventure, Towa no Quon, Genshin Impact, Stainedge / Bloodbath Bakery, Stardew Valley, Cookie Run, Golden Girls, Frasier, Pokepasta, Jadusable / BEN ARG, TLOZ Four Swords, The Boy, Dead Plate, and Ranfren! ♥ }}$
   
 </p> 
