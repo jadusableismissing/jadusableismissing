@@ -18,7 +18,7 @@ $\text{\color{pink}{ ✿ My age is 18+, keep that in mind. ✿ }}$
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ☆ Please refrain from sexual topics, it makes me uncomfortable if you're not 18+! ☆ }}$
+$\text{\color{pink}{ ☆ Please refrain from sexual topics if you're not 18+, it makes me uncomfortable! ☆ }}$
   
 </p> 
 
