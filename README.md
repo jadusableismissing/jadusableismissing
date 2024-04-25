@@ -33,11 +33,6 @@ $\text{\color{pink}{ ❀ I am also an age regressor, and tend to slip into littl
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ♡ No one is in my DNI, I don't judge based on interests! Just please keep in mind what I've explained! ♡ }}$
-  
-</p> 
-
-<p align="center">
 $\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting by me without my permission, I will hide you. ★ }}$
   
 </p> 
