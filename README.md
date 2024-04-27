@@ -34,6 +34,11 @@ $\text{\color{pink}{ ❀ I am also an age regressor, and tend to slip into littl
 
 <p align="center">
 $\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting by me without my permission, I will hide you. ★ }}$
+
+</p> 
+
+<p align="center">
+$\text{\color{pink}{ ✿ Kissing is my worst touch trigger of all, so please don't do it randomly without reason! ✿ }}$
   
 </p> 
 
