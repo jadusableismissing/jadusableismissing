@@ -1,5 +1,5 @@
 <p align="center">
-$\text{\color{pink}{ "Whether we were tricked or came here voluntarily, this world is our twisted home. We have to protect it." }}$
+$\text{\color{pink}{ . "Whether we were tricked or came here voluntarily, this world is our twisted home. We have to protect it." . }}$
 
 </p> 
 
