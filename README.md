@@ -19,6 +19,11 @@ $\text{\color{pink}{ ♬ !! My name is Jordeen/Jadusable/Sebastian !! ♬ }}$
 
 <p align="center">
 $\text{\color{pink}{ ♦ My pronouns are she/they! ♦ }}$
+
+</p> 
+
+<p align="center">
+$\text{\color{pink}{ ♢ I have diagnosed autism and ADHD, so please be patient with me! ♢ }}$
   
 </p> 
 
