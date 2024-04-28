@@ -4,6 +4,11 @@ $\text{\color{pink}{ . "Whether we were tricked or came here voluntarily, this w
 </p> 
 
 <p align="center">
+$\text{\color{pink}{ . The End.wmv . }}$
+
+</p> 
+
+<p align="center">
 <img src="https://i.postimg.cc/q748Fxm1/attackstancerandallutherdoublex2.gif"/>
 </p>
 
