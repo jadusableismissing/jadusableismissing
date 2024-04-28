@@ -23,7 +23,7 @@ $\text{\color{pink}{ ♦ My pronouns are she/they! ♦ }}$
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ♢ I have diagnosed autism and ADHD, so please be patient with me! ♢ }}$
+$\text{\color{pink}{ ♢ I have diagnosed autism, ADHD and am bipolar, so please be patient with me! ♢ }}$
   
 </p> 
 
