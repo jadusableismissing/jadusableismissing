@@ -48,6 +48,11 @@ $\text{\color{pink}{ ❀ I am also an age regressor, and tend to slip into littl
 </p> 
 
 <p align="center">
+$\text{\color{pink}{ ♥ If I'm upset or uncomfortable, I'll switch to my caregiver skin. ♥ }}$
+
+</p> 
+
+<p align="center">
 $\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting against me without my permission, I will hide you. ★ }}$
 
 </p> 
