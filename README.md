@@ -9,10 +9,6 @@ $\text{\color{pink}{ . The End.wmv . }}$
 </p> 
 
 <p align="center">
-<img src="https://i.postimg.cc/q748Fxm1/attackstancerandallutherdoublex2.gif"/>
-</p>
-
-<p align="center">
 $\text{\color{pink}{ ♬ !! My name is Jordeen/Jadusable/Sebastian !! ♬ }}$
   
 </p> 
