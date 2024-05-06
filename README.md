@@ -9,7 +9,7 @@ $\text{\color{pink}{ . The End.wmv . }}$
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ♬ !! My name is Jordeen/Jadusable/Sebastian !! ♬ }}$
+$\text{\color{pink}{ ♬ !! My name is Jordeen/Jadusable !! ♬ }}$
   
 </p> 
 
