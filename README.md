@@ -44,7 +44,7 @@ $\text{\color{pink}{ ☆ Also, if you're not 18+, please don't ask for me to sen
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ Nothing personal! :) }}$
+$\text{\color{pink}{ ♥ Nothing personal! :) ♥ }}$
 
 </p> 
 
