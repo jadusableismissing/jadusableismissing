@@ -45,11 +45,6 @@ $\text{\color{pink}{ ☆ Also, if you're not 18+, please don't ask for me to sen
 
 <p align="center">
 $\text{\color{pink}{ ❀ I am also an age regressor, and tend to slip into little space, my pony name will let you know when! ❀ }}$
-  
-</p> 
-
-<p align="center">
-$\text{\color{pink}{ ♥ If I'm upset or uncomfortable, I'll switch to my caregiver skin. ♥ }}$
 
 </p> 
 
@@ -64,6 +59,6 @@ $\text{\color{pink}{ ✿ Kissing is my worst touch trigger of all, so please don
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ♢ I hang out in safe server by the heart pool daily because I love to play with my sibling! ♢ }}$
+$\text{\color{pink}{ ♢ I hang out in safe server daily because I love to play with my sibling! ♢ }}$
   
 </p> 
