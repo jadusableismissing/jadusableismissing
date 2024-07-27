@@ -24,7 +24,7 @@ $\text{\color{pink}{ ♢ I have diagnosed autism, ADHD and I'm bipolar, so pleas
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ♥ (My mind also has under development issues or something so please be patient! ♥ }}$
+$\text{\color{pink}{ ♥ My mind also has under development issues or something so please be patient! ♥ }}$
 
 </p> 
 
