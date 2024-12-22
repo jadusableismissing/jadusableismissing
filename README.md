@@ -5,8 +5,8 @@ $\text{\color{pink}{ : ̗̀➛ My name is Jordeen! : ̗̀➛ }}$
 
 <p align="center">
 $\text{\color{pink}{ ˚₊· ͟͟͞͞➳❥ Show me your Spy skins, I love everyone's creativity! ˚₊· ͟͟͞͞➳❥ }}$
-  
-</p>
+
+</p> 
 
 <p align="center">
 $\text{\color{pink}{ ✰ ✰ ✰ My pronouns are she/they! ✰ ✰ ✰ }}$
