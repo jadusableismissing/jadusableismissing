@@ -9,6 +9,11 @@ $\text{\color{lightskyblue}{ ˚₊· ͟͟͞͞➳❥ Show me your Spy skins, I lo
 </p> 
 
 <p align="center">
+$\text{\color{lightskyblue}{ ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ Don't be afraid to say hi if you're a fellow TF2 fan! I'm very friendly but very shy. ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ }}$
+
+</p> 
+
+<p align="center">
 $\text{\color{lightskyblue}{ ✰ ✰ ✰ My pronouns are she/they! ✰ ✰ ✰ }}$
 
 </p> 
