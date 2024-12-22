@@ -39,7 +39,7 @@ $\text{\color{lightskyblue}{ +*:ꔫ:*﹤ I am also an age regressor, and tend to
 </p> 
 
 <p align="center">
-$\text{\color{lightskyblue}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting against me without my permission, I will hide you. ★ }}$
+$\text{\color{lightskyblue}{ ★ I have TT/TD because I have high anxiety, refrain from booping constantly or sitting against me without my permission. ★ }}$
 
 </p> 
 
