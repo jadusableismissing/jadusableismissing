@@ -39,4 +39,9 @@ $\text{\color{pink}{ ★ I have TT/TD because I have high anxiety, refrain from 
 </p> 
 
 <p align="center">
-$\text{\color{pink}{ ✿ Kissing is my worst touch trigger of all, so please don't do it randomly without reason! ✿ }}$
+$\text{\color{pink}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch trigger of all, so please don't do it randomly without reason! ✧˚ ༘ ⋆｡♡˚ }}$
+
+</p> 
+
+<p align="center">
+$\text{\color{pink}{ ♥*♡∞:｡.｡ If I'm sitting next to someone in 18+, it's probably my lovely wife. ♥*♡∞:｡.｡ }}$
