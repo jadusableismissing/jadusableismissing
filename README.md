@@ -1,5 +1,5 @@
 <p align="center">
-$\text{\color{lightskyblue}{ : ̗̀➛ My name is Jordeen! : ̗̀➛ }}$
+$\text{\color{lightskyblue}{ : ̗̀➛ My name is Jordeen, but you can call me Deen! : ̗̀➛ }}$
   
 </p> 
 
