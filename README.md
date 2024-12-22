@@ -50,8 +50,3 @@ $\text{\color{lightskyblue}{ ★ I have TT/TD because I have high anxiety, refra
 
 <p align="center">
 $\text{\color{lightskyblue}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch trigger of all, so only do it if you like my skin! ✧˚ ༘ ⋆｡♡˚ }}$
-
-</p> 
-
-<p align="center">
-$\text{\color{lightskyblue}{ ♥*♡∞:｡.｡ If I'm sitting next to someone in 18+, it's probably my lovely wife. ♥*♡∞:｡.｡ }}$
