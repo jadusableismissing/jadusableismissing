@@ -9,6 +9,11 @@ $\text{\color{lightskyblue}{ ˚₊· ͟͟͞͞➳❥ Show me your Spy skins, I lo
 </p> 
 
 <p align="center">
+$\text{\color{lightskyblue}{ ʚɞ˚ ༘♡ ⋆｡˚Spy was my first TF2 comfort character I got attached to, please be kind about it, I know some aren't. ʚɞ˚ ༘♡ ⋆｡˚ }}$
+
+</p> 
+
+<p align="center">
 $\text{\color{lightskyblue}{ ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ Don't be afraid to say hi if you're a fellow TF2 fan! I'm very friendly but very shy. ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ }}$
 
 </p> 
