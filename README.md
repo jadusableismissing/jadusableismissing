@@ -19,7 +19,7 @@ $\text{\color{lightskyblue}{ ✰ ✰ ✰ My pronouns are she/they! ✰ ✰ ✰ }
 </p> 
 
 <p align="center">
-$\text{\color{lightskyblue}{ ⋆.ೃ࿔*:･ I have diagnosed autism, ADHD and I'm bipolar, so please be patient with me! ⋆.ೃ࿔*:･ }}$
+$\text{\color{lightskyblue}{ ⋆.ೃ࿔*:･ I have diagnosed autism, ADHD and I'm schizoaffective, so please be patient with me! ⋆.ೃ࿔*:･ }}$
 
 </p> 
 
