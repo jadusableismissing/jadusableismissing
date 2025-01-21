@@ -19,7 +19,7 @@ $\text{\color{lightskyblue}{ ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ Don't be afraid to say
 </p> 
 
 <p align="center">
-$\text{\color{lightskyblue}{ ✰ ✰ ✰ My pronouns are she/they! ✰ ✰ ✰ }}$
+$\text{\color{lightskyblue}{ ✰ ✰ ✰ My pronouns are she/her! ✰ ✰ ✰ }}$
 
 </p> 
 
