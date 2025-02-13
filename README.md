@@ -41,3 +41,8 @@ $\text{\color{gold}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch trigger of 
 <p align="center">
 $\text{\color{orangered}{ ｡･ﾟﾟ･ X DNI LIST: X ｡･ﾟﾟ･ }}$
 <p align="center"> $\text{\color{orangered}{ ⋆·˚ ༘ * pony humping, politic topics, support beggers, ponytown recorders (more to be listed soon) ⋆·˚ ༘ * }}$
+
+</p> 
+
+<p align="center">
+$\text{\color{yellowgreen}{ *+:｡.｡ My Nigaito Shion skin is NOT racist. He is Japanese, that's his name. His name means 'Nigai', which means bitter. *+:｡.｡ }}$
