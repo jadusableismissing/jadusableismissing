@@ -50,3 +50,9 @@ $\text{\color{lightskyblue}{ ★ I have TT/TD because I have high anxiety, refra
 
 <p align="center">
 $\text{\color{lightskyblue}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch trigger of all, so only do it if you like my skin! ✧˚ ༘ ⋆｡♡˚ }}$
+
+</p> 
+
+<p align="center">
+$\text{\color{Red}{ ✧˚ ༘ ⋆｡♡˚ DNI LIST: }}$
+$\text{\color{Red}{ ✧˚ ༘ ⋆｡♡˚ pony humpers, sonichu/chris-chan ponies (more to be listed soon) }}$
