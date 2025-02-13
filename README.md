@@ -56,4 +56,4 @@ $\text{\color{lightskyblue}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch tri
 <p align="center">
 $\text{\color{Red}{ DNI LIST: }}$
 <p align="center">
-$\text{\color{Red}{˚ pony humpers, sonichu/chris-chan ponies (more to be listed soon) }}$
+$\text{\color{Red}{ pony humpers, sonichu/chris-chan ponies (more to be listed soon) }}$
