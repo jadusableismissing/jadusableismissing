@@ -55,4 +55,4 @@ $\text{\color{lightskyblue}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch tri
 
 <p align="center">
 $\text{\color{Red}{ - ,, X DNI LIST: X - ,, }}$
-<p align="center"> $\text{\color{Red}{ ·˚ ༘ pony humpers, politic topics (more to be listed soon) ·˚ ༘ }}$
+<p align="center"> $\text{\color{Red}{ ·˚ ༘ pony humping, politic topics (more to be listed soon) ·˚ ༘ }}$
