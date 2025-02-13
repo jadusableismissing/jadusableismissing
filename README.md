@@ -40,4 +40,4 @@ $\text{\color{gold}{ ✧˚ ༘ ⋆｡♡˚ Kissing is my worst touch trigger of 
 
 <p align="center">
 $\text{\color{orangered}{ ｡･ﾟﾟ･ X DNI LIST: X ｡･ﾟﾟ･ }}$
-<p align="center"> $\text{\color{orangered}{ ⋆·˚ ༘ * pony humping, politic topics, support beggers (more to be listed soon) ⋆·˚ ༘ * }}$
+<p align="center"> $\text{\color{orangered}{ ⋆·˚ ༘ * pony humping, politic topics, support beggers, ponytown recorders (more to be listed soon) ⋆·˚ ༘ * }}$
