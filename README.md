@@ -1,20 +1,5 @@
 <p align="center">
 $\text{\color{gold}{ : ̗̀➛ My name is Jordeen, but you can call me Deen! : ̗̀➛ }}$
-  
-</p> 
-
-<p align="center">
-$\text{\color{gold}{ ˚₊· ͟͟͞͞➳❥ Show me your Spy skins, I love everyone's creativity! ˚₊· ͟͟͞͞➳❥ }}$
-
-</p> 
-
-<p align="center">
-$\text{\color{gold}{ ʚɞ˚ ༘♡ ⋆｡˚Spy was my first TF2 comfort character I got attached to, please be kind about it, I know some aren't. ʚɞ˚ ༘♡ ⋆｡˚ }}$
-
-</p> 
-
-<p align="center">
-$\text{\color{gold}{ ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ Don't be afraid to say hi if you're a fellow TF2 fan! I'm very friendly but very shy. ‧̍̊˙˚˙ᵕ꒳ᵕ˙˚˙ }}$
 
 </p> 
 
