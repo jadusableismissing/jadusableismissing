@@ -11,7 +11,7 @@
  
  $\text{\color{#93d8bb}{  deen / ivan !   }}$
 
- $\text{\color{#dee6f1}{ any pronouns }}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#dee6f1}{ doopid }}$
+ $\text{\color{#dee6f1}{ any pronouns }}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#dee6f1}{ TT/TD }}$
 
 $\text{\color{#93d8bb}{ dni }}$ <br/>
 $\text{\color{#dee6f1}{ minors,　pony humping,　politic topics,}}$ <br/> $\text{\color{#dee6f1}{support beggers,　ponytown recorders}}$ 
