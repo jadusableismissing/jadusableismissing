@@ -9,7 +9,7 @@
   <img src="https://i.postimg.cc/2SJ4FTNP/ivantilll.png" width="400" height="200">  
 
  
- $\text{\color{#93d8bb}{  deen / ivan   }}$
+ $\text{\color{#93d8bb}{  deen / ivan !   }}$
 
  $\text{\color{#dee6f1}{ any pronouns }}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#dee6f1}{ doopid }}$
 
