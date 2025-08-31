@@ -29,6 +29,6 @@ $\text{\color{#dee6f1}{ minors,　pony humping,　politic topics,}}$ <br/> $\tex
 
 $\text{\color{#dee6f1}{That's all I have for now, thank you for stopping by and taking the time to get to know me, I suppose.}}$ <br/> $\text{\color{#dee6f1}{Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$
 
-$\text{\color{#dee6f1}{dividers by thecutestgrotto}}$
+$\text{\color{#93d8bb}{dividers by thecutestgrotto}}$
 
 </div>
