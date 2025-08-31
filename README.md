@@ -4,7 +4,7 @@
 
   <img src="https://64.media.tumblr.com/bdb037e7095a6f8ea0c2ec2aa3885565/4b377442bc93ee8d-4d/s2048x3072/9c529109e9790bbd9a67593da780f18d20ce6ce2.pnj" width="450" height="50">  
 
-  $\text{\color{#93d8bb}{  ` do you think we are friends in every universe? ' ✩}}$
+  $\text{\color{#93d8bb}{  ` do you think we are friends in every universe? '}}$
 
 $\text{\color{#dee6f1}{Hello, please do take a look around my GitHub! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{\color{#dee6f1}{I'd love to hear your ships since I'm a multipshipper! Also your Ocs, and I'm also a yumeshipper!}}$ <br/> $\text{\color{#dee6f1}{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{\color{#dee6f1}{yet not permanently depending on the situation.}}$
 
