@@ -27,7 +27,7 @@ $\text{\color{#dee6f1}{ minors,　pony humping,　politic topics,}}$ <br/> $\tex
 
   <img src="https://64.media.tumblr.com/bdb037e7095a6f8ea0c2ec2aa3885565/4b377442bc93ee8d-4d/s2048x3072/9c529109e9790bbd9a67593da780f18d20ce6ce2.pnj" width="450" height="50">  
 
-$\text{\color{#dee6f1}{That's all I have for now, thank you for stopping by and taking the time to get to know me, I suppose. Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$
+$\text{\color{#dee6f1}{That's all I have for now, thank you for stopping by and taking the time to get to know me, I suppose.}}$ <br/> $\text{\color{#dee6f1}{Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$
 
 $\text{\color{#dee6f1}{dividers by thecutestgrotto}}$
 
