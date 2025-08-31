@@ -10,6 +10,8 @@
  
   </div>
 
+  <div align="center">
+
   <img src="https://64.media.tumblr.com/0a8754985972ff77280d8a900c44ad32/4b377442bc93ee8d-16/s2048x3072/8984696499d961f506cb6b6f4371a8c764a2896a.pnj" width="450" height="50">  
 
 $\text{\color{#93d8bb}{ dni }}$ <br/>
