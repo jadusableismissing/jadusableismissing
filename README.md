@@ -6,7 +6,7 @@
 
   $\text{\color{#93d8bb}{  ` in your gaze where i am seen, consume me ' ✩}}$
   
-  <img src="https://static.wikia.nocookie.net/forsaken2024/images/e/e0/Prometheus_was_punished_by_the_gods_for_giving_the_gift_of_knowledge_to_man..webp/revision/latest?cb=20250129185205" width="400" height="200">  
+  <img src="https://static.wikia.nocookie.net/forsaken2024/images/e/e0/Prometheus_was_punished_by_the_gods_for_giving_the_gift_of_knowledge_to_man..webp/revision/latest?cb=20250129185205" width="300" height="300">  
 
  
  $\text{\color{#93d8bb}{  deen / ivan   }}$
