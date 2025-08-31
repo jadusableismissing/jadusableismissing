@@ -6,12 +6,7 @@
 
   $\text{\color{#93d8bb}{  ` in your gaze where i am seen, consume me ' ✩}}$
   
-  <img src="https://static.wikia.nocookie.net/forsaken2024/images/e/e0/Prometheus_was_punished_by_the_gods_for_giving_the_gift_of_knowledge_to_man..webp/revision/latest?cb=20250129185205" width="300" height="300">  
-
- 
- $\text{\color{#93d8bb}{  deen / ivan   }}$
-
- $\text{\color{#dee6f1}{ any pronouns }}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#dee6f1}{ doopid }}$
+  <img src="https://static.wikia.nocookie.net/forsaken2024/images/e/e0/Prometheus_was_punished_by_the_gods_for_giving_the_gift_of_knowledge_to_man..webp/revision/latest?cb=20250129185205" width="300" height="300"> 
 
 $\text{\color{#93d8bb}{ dni }}$ <br/>
 $\text{\color{#dee6f1}{ minors,　pony humping,　politic topics,}}$ <br/> $\text{\color{#dee6f1}{support beggers,　ponytown recorders}}$ 
