@@ -14,7 +14,7 @@ $\text{\color{#dee6f1}{Hello, please do take a look around my GitHub! I am a pre
 
   <div align="center">
   
-  <img src="https://static.wikia.nocookie.net/forsaken2024/images/e/e0/Prometheus_was_punished_by_the_gods_for_giving_the_gift_of_knowledge_to_man..webp/revision/latest?cb=20250129185205" width="300" height="300">
+  <img src="https://www.pinterest.com/pin/11610911540541546/" width="300" height="300">
  
   </div>
 
