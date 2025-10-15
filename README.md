@@ -14,7 +14,7 @@ $\text{\color{#dee6f1}{Hello, please do take a look around my GitHub! I am a pre
 
   <div align="center">
   
-  <img src="https://www.pinterest.com/pin/11610911540541546/" width="300" height="300">
+  <img src="https://i.pinimg.com/736x/6c/de/db/6cdedb95126567971e80fe6055a25ec6.jpg" width="300" height="300">
  
   </div>
 
