@@ -6,7 +6,7 @@
 
   $\text {{  ` You can love her with everything you have and she still won't belong to you. '}}$
 
-$\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{\color{#BFFFD1}{I'd love to hear your ships since I'm a multipshipper! Also your Ocs, and I'm also a yumeshipper!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation.}}$
+$\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{{I'd love to hear your ships since I'm a multipshipper! Also your Ocs, and I'm also a yumeshipper!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation.}}$
 
   <img src="https://64.media.tumblr.com/6a24795130cc4e6ed7787e4b68b842c7/4904a4f82601424c-79/s2048x3072/3902661d6285b15218dbceef46cf6d5e24a72642.pnj" width="450" height="50">  
 
