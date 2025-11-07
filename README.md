@@ -27,8 +27,8 @@ $\text{{ minors,　pony humping,　politic topics,}}$ <br/> $\text{{support begg
 
   <img src="https://64.media.tumblr.com/d065b45245a7b2d466adff3af75a3be2/8ad290d8a8f3bf85-c8/s2048x3072/20b0c43041caf88694bbfe1d67be9b3a481f478e.pnj" width="450" height="50">  
 
-$\text{\color{#BFFFD1}{That's all I have for now, thank you for stopping by and taking the time to get to know me, I suppose.}}$ <br/> $\text{\color{#BFFFD1}{Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$
+$\text{{That's all I have for now, thank you for stopping by and taking the time to get to know me, I suppose.}}$ <br/> $\text{{Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$
 
-$\text{\color{#08872B}{dividers by toxisyddy and the cutestgrotto}}$
+$\text{\color{dividers by toxisyddy and the cutestgrotto}}$
 
 </div>
