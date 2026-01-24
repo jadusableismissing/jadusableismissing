@@ -14,7 +14,7 @@ $\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful ye
 
   <div align="center">
   
-  <img src="https://i.pinimg.com/736x/6c/de/db/6cdedb95126567971e80fe6055a25ec6.jpg" width="300" height="300">
+  <img src="https://i.pinimg.com/736x/c3/8d/31/c38d3169cfc1afb758b897cadfabef8e.jpg" width="300" height="300">
  
   </div>
 
