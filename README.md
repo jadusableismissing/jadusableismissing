@@ -6,7 +6,7 @@
 
   $\text {{  ` Yeah, maybe the path is gory. Whatever it takes to get my glory. '}}$
 
-$\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{{I'd love to hear your ships since I'm a multishipper! Also your Ocs, and I'm also a yumeshipper!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation.}}$
+$\text{{Hello nice to meet you!, please do take a look around! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{{I'd love to hear your ships since I'm a multishipper! Also, please check out my strawpage and maybe doodle!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation, nothing personal!}}$
 
   <img src="https://64.media.tumblr.com/fedf6ed76c1755bea103fd57f27239ee/ca9a377942aa49e9-2f/s2048x3072/83bc1e40772a49c2fa2309ee550c5e27232e5161.pnj" width="450" height="50">  
 
