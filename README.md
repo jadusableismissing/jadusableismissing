@@ -2,7 +2,7 @@
 
 <div align="center">
 
-  <img src="https://64.media.tumblr.com/932abb89af822b6db0d4f416924b7fde/cfc654fafa5982a3-61/s2048x3072/7a335cfeec332d7fde86887b641df806e772cba9.pnj" width="450" height="50">  
+  <img src="https://64.media.tumblr.com/c1a21b4efddfc45abb6000ba1b55465b/ca9a377942aa49e9-22/s2048x3072/08cf7bec60c0211b36ebe2ae9245b98d76ac4ea5.pnj" width="450" height="50">  
 
   $\text {{  ` You can love her with everything you have and she still won't belong to you. '}}$
 
