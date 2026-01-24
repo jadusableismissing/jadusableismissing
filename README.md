@@ -23,7 +23,7 @@ $\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful ye
   <img src="https://64.media.tumblr.com/6a24795130cc4e6ed7787e4b68b842c7/4904a4f82601424c-79/s2048x3072/3902661d6285b15218dbceef46cf6d5e24a72642.pnj" width="450" height="50">  
 
 $\text{{ dni }}$ <br/>
-$\text{{ minors,　pony humping,　politic topics,}}$ <br/> $\text{{support beggers,　ponytown streamers}}$
+$\text{{ pony humping,　politic topics,}}$ <br/> $\text{{support beggers,　ponytown streamers}}$
 
   <img src="https://64.media.tumblr.com/d065b45245a7b2d466adff3af75a3be2/8ad290d8a8f3bf85-c8/s2048x3072/20b0c43041caf88694bbfe1d67be9b3a481f478e.pnj" width="450" height="50">  
 
