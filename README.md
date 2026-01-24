@@ -28,7 +28,3 @@ $\text{{ pony humping,　politic topics,}}$ <br/> $\text{{support beggers,　pon
   <img src="https://64.media.tumblr.com/932abb89af822b6db0d4f416924b7fde/cfc654fafa5982a3-61/s2048x3072/7a335cfeec332d7fde86887b641df806e772cba9.pnj" width="450" height="50">  
 
 $\text{{That's all I have for now, thank you for stopping by and taking the time to get to know me, I suppose.}}$ <br/> $\text{{Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$
-
-$\text{\color{dividers by toxisyddy and the cutestgrotto}}$
-
-</div>
