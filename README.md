@@ -4,7 +4,7 @@
 
   <img src="https://64.media.tumblr.com/c1a21b4efddfc45abb6000ba1b55465b/ca9a377942aa49e9-22/s2048x3072/08cf7bec60c0211b36ebe2ae9245b98d76ac4ea5.pnj" width="450" height="50">  
 
-  $\text {{  ` You can love her with everything you have and she still won't belong to you. '}}$
+  $\text {{  ` Yeah, maybe the path is gory. Whatever it takes to get my glory. '}}$
 
 $\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{{I'd love to hear your ships since I'm a multishipper! Also your Ocs, and I'm also a yumeshipper!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation.}}$
 
