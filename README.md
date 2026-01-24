@@ -8,7 +8,7 @@
 
 $\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{{I'd love to hear your ships since I'm a multishipper! Also your Ocs, and I'm also a yumeshipper!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation.}}$
 
-  <img src="https://64.media.tumblr.com/0bf6e0ff113205a1d91811d46a915fb4/cfc654fafa5982a3-19/s2048x3072/188a280a88d592994af6eeca64f2fc3ebef04131.pnj" width="450" height="50">  
+  <img src="https://64.media.tumblr.com/fedf6ed76c1755bea103fd57f27239ee/ca9a377942aa49e9-2f/s2048x3072/83bc1e40772a49c2fa2309ee550c5e27232e5161.pnj" width="450" height="50">  
 
   </div>
 
@@ -20,7 +20,7 @@ $\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful ye
 
   <div align="center">
 
-  <img src="https://64.media.tumblr.com/0bf6e0ff113205a1d91811d46a915fb4/cfc654fafa5982a3-19/s2048x3072/188a280a88d592994af6eeca64f2fc3ebef04131.pnj" width="450" height="50">  
+  <img src="https://64.media.tumblr.com/fedf6ed76c1755bea103fd57f27239ee/ca9a377942aa49e9-2f/s2048x3072/83bc1e40772a49c2fa2309ee550c5e27232e5161.pnj" width="450" height="50">  
 
 $\text{{ dni }}$ <br/>
 $\text{{ pony humping,　politic topics,}}$ <br/> $\text{{support beggers,　ponytown streamers}}$
