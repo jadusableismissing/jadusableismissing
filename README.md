@@ -20,7 +20,7 @@ $\text{{Hello, please do take a look around my GitHub! I am a pretty peaceful ye
 
   <div align="center">
 
-  <img src="https://64.media.tumblr.com/6a24795130cc4e6ed7787e4b68b842c7/4904a4f82601424c-79/s2048x3072/3902661d6285b15218dbceef46cf6d5e24a72642.pnj" width="450" height="50">  
+  <img src="https://64.media.tumblr.com/7bf2c33d24c17d95f703046b1ac2aa00/cfc654fafa5982a3-b5/s2048x3072/8d0f05dd133547fb9eb243ed930a3104d88e58c0.pnj" width="450" height="50">  
 
 $\text{{ dni }}$ <br/>
 $\text{{ pony humping,　politic topics,}}$ <br/> $\text{{support beggers,　ponytown streamers}}$
