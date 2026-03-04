@@ -22,4 +22,4 @@ $\text{{Hello nice to meet you!, please do take a look around! I am a pretty pea
 
 $\text{{Remember to get plenty of rest and hydrate, take care of yourself because you're so important!}}$ <br/> $\text{{If you're in the May Madness 2012 fandom, please do drop a doodle in my strawpage! Thank you much!}}$
 
-  <img src="https://64.media.tumblr.com/c1a21b4efddfc45abb6000ba1b55465b/ca9a377942aa49e9-22/s2048x3072/08cf7bec60c0211b36ebe2ae9245b98d76ac4ea5.pnj" width="450" height="50">  
+  <img src="https://64.media.tumblr.com/c97d29ca8e4792e16b295e99eefe82a2/eca5ffc259a1231a-0e/s400x600/9414de3d165eece63b9c6a68c4584b2d188c1758.pnj" width="450" height="50">  
