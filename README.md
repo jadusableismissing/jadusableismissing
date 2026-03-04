@@ -2,9 +2,7 @@
 
 <div align="center">
 
-  <img src="https://64.media.tumblr.com/c1a21b4efddfc45abb6000ba1b55465b/ca9a377942aa49e9-22/s2048x3072/08cf7bec60c0211b36ebe2ae9245b98d76ac4ea5.pnj" width="450" height="50">  
-
-  $\text {{  ` Yeah, maybe the path is gory. Whatever it takes to get my glory. '}}$
+  <img src="https://64.media.tumblr.com/c97d29ca8e4792e16b295e99eefe82a2/eca5ffc259a1231a-0e/s400x600/9414de3d165eece63b9c6a68c4584b2d188c1758.pnj" width="450" height="50">  
 
 $\text{{Hello nice to meet you!, please do take a look around! I am a pretty peaceful yet anxious person.}}$ <br/> $\text{{I'd love to hear your ships since I'm a multishipper! Also, I have a strawpage!}}$ <br/> $\text{{Be aware and interact with caution upon first meeting though, if I get uncomfortable and do not know you I will hide you,}}$ <br/> $\text{{yet not permanently depending on the situation, nothing personal!}}$
 
