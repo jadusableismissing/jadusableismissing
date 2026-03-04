@@ -12,7 +12,7 @@ $\text{{Hello nice to meet you!, please do take a look around! I am a pretty pea
 
   <div align="center">
   
-  <img src="https://i.pinimg.com/736x/c3/8d/31/c38d3169cfc1afb758b897cadfabef8e.jpg" width="300" height="300">
+  <img src="https://i.pinimg.com/736x/d6/31/cb/d631cbd1b3013b5ecf3a9b36ae9756db.jpg" width="300" height="300">
  
   </div>
 
